@@ -3,12 +3,12 @@
 
 ### List your target geographic areas
 
-- 
+- Houston, TX
 
 
 ### List your target industries
 
-- 
+- Not sure yet, but something towards social good is a plus
 
 
 ### List 10 companies in your target geographic area or industry
